@@ -12,3 +12,12 @@ sdfsdaf
 sdafdsa
 sffsdfsda
 sdfsdf
+ASDASDSAD
+aDASDASD
+ASDadaDSA
+ASDSAD
+Adasdadszxcz\
+zxcz\c\c
+zcxxc\zcxz
+zxczcz\
+zxc
